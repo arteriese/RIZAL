@@ -1,2 +1,2 @@
 # [RIZAL](https://arteriese.github.io/RIZAL/)
-M2 Summative Blog
+Click ↑ M2 Summative Blog
